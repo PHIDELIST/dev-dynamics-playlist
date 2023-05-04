@@ -27,3 +27,15 @@
 1. "Kubali" by Brandy Maina
 1. "All of me" by John Legend
 1. "Witness" by Ethan Muziki
+
+### *Rhumba playlist (by Phidelist)*
+1. "Layile" by Franco Luambo
+1. "Vaccination" by Simaro Massiya
+1. "I want to go home" by Remmy Ongala Sura mbaya
+1. "Zekira" by Zaiko Langa Langa
+1. "Ikea" by Koffi Olomide
+1. "Christina" by Musa Juma
+1. "JUdgemental" by Fere Golla
+1. "Siaya ka baba" by Musa Juma
+1. "Mukaji" by Zaiko Langa Langa
+1. "Skol" by Koffi Olomide
